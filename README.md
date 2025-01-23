@@ -53,3 +53,5 @@ Or just download by clicking the link below:
 
 [Download here](https://drive.google.com/file/d/1_he9Rje50V2bF6QLBxv3L60PxVFFZFkb/view?usp=drive_link)
 
+or go to DownloadApkFromHere folder and download the file in your mobile(android).
+
